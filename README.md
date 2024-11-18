@@ -1,3 +1,3 @@
 Proyecto Final 
-Juan Sebastian FLorez 
+Juan Sebastian FLorez & 
 Adriam Angel 
